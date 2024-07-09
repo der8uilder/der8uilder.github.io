@@ -1,4 +1,1 @@
-# der8uilder.github.io
-
-hello im der8uilder and i do Tech Videos!
-come visit our community discord!
+Moin Moin meine aktiven Freunde, kommt bei Fragen rund um Technik / PC´s aber auch z.b. 3D Druck auf unseren Discord!
